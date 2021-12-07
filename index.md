@@ -1,4 +1,3 @@
-### 3 things I can do to help my wellbeing
-Take Proper Sleep   
-Find and Practice New Hobbies   
-Eat a Balanced Diet   
+### Eat a Balanced Diet   
+[Learn more about eating a balanced diet](https://www.healthline.com/health/balanced-diet)   
+
