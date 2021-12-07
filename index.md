@@ -1,4 +1,3 @@
-### 3 things I can do to help my wellbeing
-Take Proper Sleep   
-Find and Practice New Hobbies   
-Eat a Balanced Diet   
+### Find and Practice New Hobbies   
+[Learn more about find and practice new hobbies](https://www.nytimes.com/guides/smarterliving/how-to-find-a-hobby)  
+   
