@@ -1,3 +1,5 @@
-### Find and Practice New Hobbies   
-[Learn more about find and practice new hobbies](https://www.nytimes.com/guides/smarterliving/how-to-find-a-hobby)  
-   
+### 4 things I can do to help my wellbeing
+Expose Your Body to Sunlight   
+Exercise Daily   
+Stay Away from Smoking and Alcohol   
+Laugh and Enjoy    
