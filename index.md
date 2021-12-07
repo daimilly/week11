@@ -1,3 +1,5 @@
-### Eat a Balanced Diet   
-[Learn more about eating a balanced diet](https://www.healthline.com/health/balanced-diet)   
-
+### 4 things I can do to help my wellbeing
+Expose Your Body to Sunlight   
+Exercise Daily   
+Stay Away from Smoking and Alcohol   
+Laugh and Enjoy    
