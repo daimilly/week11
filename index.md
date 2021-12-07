@@ -1,4 +1,7 @@
-### Take Proper Sleep
-[Learn about taking proper sleep](https://www.mayoclinic.org/healthy-lifestyle/adult-health/basics/sleep/hlv-20049421)
+### 4 things I can do to help my wellbeing
+Expose Your Body to Sunlight
+Exercise Daily
+Stay Away from Smoking and Alcohol
+Laugh and Enjoy
    
    
